@@ -1,4 +1,4 @@
-### MHackathon Call for Code 2020 - SHAWEE | Desafio Mudanças Climáticas
+### Hackathon Call for Code 2020 - SHAWEE | Desafio Mudanças Climáticas
 
 ### Here_Industry
 
